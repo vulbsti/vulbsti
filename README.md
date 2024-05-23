@@ -2,8 +2,8 @@
 
 ### My Life story by chatGPT
 
-In halls of academia, I wandered wide, \n
-Seeking secrets of the mind inside. \n
+In halls of academia, I wandered wide, 
+Seeking secrets of the mind inside.
 Psychology's gates I passed through first,
 Hoping to grasp the workings anew.
 But like a fleeting dream, my hopes did fade,
