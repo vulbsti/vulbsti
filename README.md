@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### My Life story by chatGPT
+### My Life story as a poem by chatGPT
 
 In halls of academia, I wandered wide, 
 Seeking secrets of the mind inside.
